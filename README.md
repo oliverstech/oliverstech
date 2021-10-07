@@ -13,6 +13,9 @@ If you're interested in checking my YouTube channel out, you're more than welcom
 Have an awesome day!
 
 Web: https://www.oliverstech.tk
+
 TikTok: https://short.oliverstech.tk/tiktok
+
 YouTube: https://short.oliverstech.tk/youtube
+
 Reddit: https://short.oliverstech.tk/reddit
